@@ -25,11 +25,13 @@ Please send bank slip to qsljamaica@gmail.com and to WhatsApp 876-783-2423
 If you ae having problems with the JN Account 
 
 *USE THE FOLLOWING BANKING DETAILS*
+
 Name: Gladstone Rose
 
 Bank: NCB Halfway tree Branch
 
 Account: Current Account number 302548110
+
 
 Send copy of bank slip for BIAJ records
 
